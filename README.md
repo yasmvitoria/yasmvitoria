@@ -1,4 +1,5 @@
-![images](https://user-images.githubusercontent.com/130660192/233355754-7a090c6f-a493-4f03-92ba-8b09d9151958.jpeg)
+![kuromi-hello-kitty-640x1136-9493](https://user-images.githubusercontent.com/130660192/233356081-59ab2018-88ab-4230-8dbe-bc2710455b16.png)
+
 
 ### bem vindo ao meu perfil
 
