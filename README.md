@@ -1,4 +1,5 @@
-![459989a6f16cc2f3c2519200dc7652761673789367_full](https://user-images.githubusercontent.com/130660192/233354412-b05c7044-e6a5-43a1-95d8-848bc8aeb666.png)
+![images](https://user-images.githubusercontent.com/130660192/233355754-7a090c6f-a493-4f03-92ba-8b09d9151958.jpeg)
+
 ### bem vindo ao meu perfil
 
 Meu nome é Yasmim
